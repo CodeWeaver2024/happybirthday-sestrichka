@@ -1,2 +1,0 @@
-# happybirthday-sestrichka
-happybirthday-sestrichka
